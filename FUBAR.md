@@ -1,1 +1,7 @@
 # DO I need to add a series of bad jokes? Really?
+
+1. **I'm afraid for the calendar. Its days are numbered.**
+
+2. **Why do fathers take an extra pair of socks when they go golfing?" "In case they get a hole in one!**
+
+3. **What do you call a fish wearing a bowtie?" "Sofishticated.**
